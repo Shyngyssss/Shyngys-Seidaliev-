@@ -1,0 +1,2 @@
+# Shyngys-Seidaliev-
+Pray time 
