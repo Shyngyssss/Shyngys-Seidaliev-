@@ -1,2 +1,2 @@
-# Shyngys-Seidaliev-
-Pray time 
+Shyngys Seidaliev
+
